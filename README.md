@@ -1,7 +1,7 @@
 ##  💫 About Me:
 Hey there! I’m a Computer Science student with a passion for coding. When I’m not lost in lines of code, you’ll catch me grooving to the beat, turning every rhythm into a creative adventure. Always up for teaming up on exciting and fun projects! 🙌
 
-Feel free to drop me a line at ag.krishna0807@gmail.com! Let’s make some magic happen! ✨
+Feel free to drop me a line at ag.krishna0807@gmail.com!
 
 
 ## 🌐 Socials:
